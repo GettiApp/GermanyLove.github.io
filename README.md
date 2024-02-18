@@ -1,1 +1,1 @@
-# GermanyLove.github.io
+# GermanyLove
